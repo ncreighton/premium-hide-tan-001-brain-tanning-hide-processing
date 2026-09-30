@@ -1,0 +1,2 @@
+# premium-hide-tan-001-brain-tanning-hide-processing
+Stop guessing whether your hides are properly degreased or over-soaked—your next brain tanning project deserves a process that’s as precise as the craft itself.  This Notion dashboard transforms the ancient art of brain tanning into a repeatable, trackable system. No more forgotten soak times, lost notes on brain-to-water ratios, or inconsistent re
